@@ -1,0 +1,1 @@
+Burada bilinmeyen kelimeleri öğrenebilirsiniz
